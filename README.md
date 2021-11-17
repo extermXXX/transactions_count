@@ -1,3 +1,5 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is exterminator#5067
+
 # Block Transactions Count Agent
 
 ## Description
